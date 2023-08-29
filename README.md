@@ -16,8 +16,5 @@ Essas são as ferramentas de tecnologia que eu utilizo:
 >✅Photoshop
 
 
-Essas são as minhas redes sociais:
-
-
 
 
